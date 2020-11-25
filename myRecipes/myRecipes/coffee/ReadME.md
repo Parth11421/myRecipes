@@ -1,0 +1,2 @@
+This recipe is about Coffee
+Coffee grown worldwide can trace its heritage back centuries to the ancient coffee forests on the Ethiopian plateau. There, legend says the goat herder Kaldi first discovered the potential of these beloved beans.
